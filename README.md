@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Blessdnoah
+- 👀 I’m interested in discord bot coding
+- 🌱 I’m currently learning python coding
+- 📫 How to reach me = discord (22.noah)
+- 😄 Pronouns: he/him
+- ⚡ My email: noah.wuffi.de@gmail.com
